@@ -1,8 +1,4 @@
 New changes done by developer
 
-some more changes dondddddddeddd
-
-
-ccccccvcvcvc
-tgfgfh
+some more changes 
 
